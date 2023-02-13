@@ -1,1 +1,1 @@
-https://meet.google.com/sjx-kjju-zho
+https://meet.google.com/jws-enco-afv
